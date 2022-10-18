@@ -1,0 +1,5 @@
+- Oi eu sou @MarianaSerafimBalarin
+- Estudante do Ensino Medio; Aula Pensamento Computacional 
+- Istagram:mari_balarin
+- Meu email: mariana.balarin@escola.pre.gov.br
+- 
